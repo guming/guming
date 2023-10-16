@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+**喜欢阅读📖、电影🎬、编程 💻，目前在控制嘌呤摄入🤪**
 <!--
 **guming/guming** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
